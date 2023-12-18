@@ -11,7 +11,7 @@
 
 ![WhatsApp Image 2023-12-17 at 11 42 26](https://github.com/Kj1710/Mumbai_Hack/assets/112983519/07e3eefa-1ddf-4a7a-8d0f-ed848c703ff8)
 
-![Uploading WhatsApp Image 2023-12-17 at 11.42.31.jpeg…]()
+
 
 
 
